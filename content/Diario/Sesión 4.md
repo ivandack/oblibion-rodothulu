@@ -41,3 +41,68 @@ En ese momento miran hacia arriba, y ven la silueta de **5** criaturas voladoras
 (Fin de partida ese día)
 
 ---
+
+[[JC Madison (Fede)]] y [[Leopold Levard (Estu)]] salen corriendo a la carpa más cercana (donde dormía [[Oliver Porter (Pola)]]). Llegan a despertarlo cuando entran 3 de las criaturas.
+- Leopold dispara pero falla
+- JC dispara y pega (14 de daño)
+- Oliver esquiva un zarpaso, y ataca a otro, esquivando un contraataque, matándolo.
+- Ippi y Richard salen, Richar le pega un tiro a uno de los 2 que están afuera.
+- A Oliver lo ataca un bicho y lo deja en 5 de vida.
+- JC le dispara al bicho que le atacó, pero falla.
+- Oliver tira de venganza y le pega 4.
+- Leopold intenta atacar pero falla.
+- Ippi ataca con un pico a uno de los bichos. El bicho lo contraataca pegando 20, dejándolo grávemente herido con 2 puntos. Se mantiene despierto.
+- Richard ataca al bicho de Ippi. Le pega 7, dejándolo bastante herido.
+- El otro bicho ataca a RIchard, pero él lo esquiva.
+- El primer bicho ataca a Ippi, pero erra.
+- En la carpa, un bicho ataca a JC y erra.
+- El otro ataca a Leopold y lo hiere de gravedad. Leopold se mantiene arriba.
+- JC ataca al bicho y falla.
+- Oliver ataca con 6 de daño.
+- Leopold intenta un culetazo y falla.
+- Ippi está herido, e intenta atacarlo. Lo mata.
+- Richard pega un culatazo al que queda afuera.
+- Un bicho ataca a Leopold, pero falla.
+- El otro lo ataca a Oliver, pero falla.
+- JC le pega un tiro al bicho de Oliver, y lo mata.
+- Oliver le pega al bicho que estaba atacando a Leopold, y le quita 10.
+- Leopold le pega un culatazo al bicho con 5, dejándolo medio roto.
+- Ippi intenta golpear al bicho que queda afuera, pero falla.
+- Richard le pega un culatazo con 2.
+- El bicho ataca a Richard y lo mata (?).
+- El bicho de adentro intenta escapar, pero Oliver le pega con el pico y lo mata.
+- Uno de los braseros aparace dela nada con pico.
+- El bicho safa y se escapa.
+
+Al amanecer, mientras los braceros se preparaban para rajar, llega Galloway. El arqueólogo los convence para que se queden algunos.
+
+Galloway con Lorence van a vernos en la carpa. Él calcula que para el día siguiente deben encontrar la tumba.
+
+Pasa el día, llega la noche, y pasa sin problemas. Finalmente llegamos a la puerta de la tumba de [[Nophru-Ka]].
+Se encuentra que la tumba fue abierta, y al parecer sellada con dinamita. 
+Hay sarcófagos sellados, pero Leopold encontró huellas ajenas que estaban dirigiéndose hacia afuera.
+Al final del pasillo encontramos un sarcófago y un cadáver con ropa árabe moderna con un disparo en la nuca. TIene monedas de 1895.
+Galloway lee "Esta es la historia de Nophru-Ka." escrito a las apuradas.
+En ese momento se escucha un ruido de 2 piedras pesadas cayendo. De ahí salieron dos criaturas con cuerpo humano y cabeza de cocodrilo. Similar a antes, pero estos están momificados.
+
+Katif toma un pergamino e intenta escapar, pero Oliver le hace la traba, haciéndolo caer.
+Ippi les intenta disparar a las momias, pero las balas no le hacen nada. Leopold apuñala a Katif, dejándolo medio tonto.
+Un bracero intenta escapar, pero una de las momias se lo come. Otro ataca a la otra momia, y le daña el pecho.
+Oliver intenta forcejear con Katif, pero él lo esquiva.
+Ippi intenta arrojarles la antorcha a las momias, pero falla.
+Un bracero le arranca un brazo a la momia que todavía estaba completa. La momia le hace lo mismo.
+Oliver toma en una llave a Katif. Leopold le corta el cuello.
+
+Oliver consigue escaparse a intentar buscar ayuda, pero los braseros de afuera no le entienden. Entonces se manda adentro de nuevo.
+Mientras tanto Galloway consigue destruir a ambas momias.
+
+EL pergamino era "Despedir Dhole".
+
+Galloway se queda a estudiar la tumba.
+En la tienda de Katif se encuentra la piedra roja (la que nos afanaron) y un pergamino en árabe que dice "Katif, un asutno urgente, Hace poco aparecieron en Drovosna una "
+otro pergamino que dice "Llamar / despedir a la bestia".
+pergamino que dice "Símbolo protector", describe como gesto manual para hacer en la tumba al abrir la cámara interior.
+
+Nopruka fue un diligente egipcio, uno de los primeros del miembro separatista, se denomino la 14 dinastía.
+Los sirvietnes de nophruka tenía un plan siniestro para apoderarse de todo egipto (y del mundo), invocando en diferentes templos monstruos para causar desolación, y luego banish them para quedar como heroe.
+
