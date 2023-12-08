@@ -3,7 +3,7 @@ Hermandad antigua que parece buscar la resurrección o despertar de una criatura
 Esperan (o en 1890 esperaban) el nacimiento de [[El Niño]], guiados por las estrellas (una mencionada es [[Xoth]].
 # Miembros conocidos
 - [[Dr. Ambrose Cornwallise]] (miembro)
-- [[Edward]] (miembro?)
+- [[Edward Chandler]] (miembro)
 - [[Barón Hauptman]] (co-fundador)
 - [[Lang-Fu]] (co-fundador)
 # Historia

@@ -7,11 +7,12 @@ tags: índice
 	- [[Katheryn Lovegood]]
 	- [[Ronald Galloway]]
 - Enemigos
+	- [[Rogers]] (Vivo)
 	- [[Dr. Ambrose Cornwallise]] (Muerto)
-	- [[Barón Hauptman]]
+	- [[Barón Hauptman]] (Vivo)
 	- [[Jeremy Cornwallise]] (Muerto)
-	- [[Nophru-Ka]] (Muerto...?)
-	- [[Edward]] (?)
+	- [[Nophru-Ka]] (Muerto...)
+	- [[Edward Chandler]] (joven amo Edward) (Vivo)
 - Neutrales
 	- [[Emily Cornwallise]] (Muerta)
 	- [[Lionel Newman]] (Muerto)
