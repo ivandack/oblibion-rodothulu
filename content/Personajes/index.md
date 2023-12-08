@@ -7,7 +7,7 @@ tags: índice
 	- [[Katheryn Lovegood]]
 	- [[Ronald Galloway]]
 - Enemigos
-	- [[Rogers]] (Vivo)
+	- [[Clarence Rogers]] (Vivo)
 	- [[Dr. Ambrose Cornwallise]] (Muerto)
 	- [[Barón Hauptman]] (Vivo)
 	- [[Jeremy Cornwallise]] (Muerto)
